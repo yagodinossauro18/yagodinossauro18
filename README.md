@@ -19,3 +19,5 @@ eu gosto de fammila
 eu gosto de profa nil
 eu gosto de amigo
 eu gosto de professores
+
+![](https://media1.tenor.com/m/eURO5-ij7OAAAAAC/dinosaur-dinosaurs.gif)
